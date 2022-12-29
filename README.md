@@ -1,4 +1,4 @@
-### Hi there 👋
+### System Consultant Group 26th
 
 <!--
 **Hanjunhee-1/Hanjunhee-1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
